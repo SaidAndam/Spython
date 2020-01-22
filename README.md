@@ -1,1 +1,1 @@
-# Spython
+# hi every bady i am new in this platform, and very interssted to the technology of blockchain, want to developpe my skils and learn the basics to master the blockchain, speacially i want to developpe this thechnology in food chain (transport,production, supply) and build a new systeme that guarantee food defense and safety.
